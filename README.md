@@ -1,1 +1,0 @@
-# ETHLagos_Hackathon
